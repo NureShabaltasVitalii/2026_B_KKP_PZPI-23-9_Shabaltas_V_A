@@ -1,1 +1,0 @@
-# 2026_B_KKP_PZPI-23-9_Shabaltas_V_A
